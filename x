@@ -1,1 +1,1 @@
-https://calstatela.zoom.us/meetings/88129687050/invitations?signature=wXEUlFZlh5BUV9aAB0qE_rEmUOZhfcyrW27mdloKkik
+https://calstatela.zoom.us/j/6265064113?omn=88129687050
