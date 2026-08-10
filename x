@@ -1,1 +1,1 @@
-https://calstatela.zoom.us/j/6265064113?omn=88129687050
+https://meeting.is/3098427671?hl=en&nv=0MN6Tbq&c=_7F9pbuLx4bx
